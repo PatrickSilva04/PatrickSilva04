@@ -9,7 +9,7 @@ Sou apaixonado por tecnologia, programação e inovações, e estou sempre em bu
 Sinta-se à vontade para explorar meus repositórios e acompanhar minha evolução como desenvolvedor!
 <br/>
 
-📎 Conecte-se comigo no LinkedIn "(https://www.linkedin.com/in/patrick-ferreira-a04a55155?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BzdBPl2nnS1i5i1848o1dGw%3D%3D)"
+📎 Conecte-se comigo no LinkedIn "(https://www.linkedin.com/in/patrick-ferreira-a04a55155/)"
 
 ---
 
